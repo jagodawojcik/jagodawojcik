@@ -23,5 +23,4 @@ so this profile is quieter than reality. 😉
 
 ## 📫 Get in Touch
 
-What are you building?
 Building something interesting? Let’s chat!
